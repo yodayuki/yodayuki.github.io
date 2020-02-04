@@ -4,4 +4,4 @@ Welcome to Visite
 ## Domain name for sale! $10 - Contact me: [SEND MAIL](mailto:van4hc@gmail.com)
 ## 域名出售中！¥70 - 与我联系：[发送邮件](mailto:van4hc@gmail.com)
 ## 販売用ドメイン名！１０００円 - 私に連絡してください：[メールを送る](mailto:van4hc@gmail.com)
-![yoda](https://github.com/yodayuki/yodayuki.github.io/blob/master/G07igNo%20-%20Imgur.jpg)
+![yoda](https://imgur.com/G07igNo)
