@@ -4,4 +4,4 @@ Welcome to Visite
 ## Domain name for sale! $10
 ## 域名出售中！¥70
 ## 販売用ドメイン名！１０００円
-![yoda](G07igNo - Imgur.jpg)
+![yoda](https://github.com/yodayuki/yodayuki.github.io/blob/master/G07igNo%20-%20Imgur.jpg)
